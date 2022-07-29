@@ -10,7 +10,7 @@ Contacto: gwee@nekotina.com
 Nekotina es una poderosa bot que quiere incentivar la actividad en tu servidor.
 Invitame a tu servidor y ten la mejor calidad de música, economía y todo lo que puedas imaginar completamente en español. ¿Qué esperas para comenzar nuestra aventura?
 
-> Más de 500 comandos para mantener activo tu servidor.
+> Más de 600 comandos para mantener activo tu servidor.
 
 > Música de la mejor calidad.
 
