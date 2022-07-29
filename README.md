@@ -16,7 +16,7 @@ Invitame a tu servidor y ten la mejor calidad de música, economía y todo lo qu
 
 > Economía global inigualable.
 
-> 6,000 gifs de anime que potencian el roleplay.
+> 7,000 gifs de anime que potencian el roleplay.
 
 ## Soporte
 **Nuestro servidor oficial de soporte: [LINK](https://discordapp.com/invite/nekotina)**
