@@ -5,7 +5,7 @@
 > Sitio web: [nekotina.com](https://nekotina.com)  
 Contacto: gwee@nekotina.com
 
-**Completamente en español y preferida por más de un 1,000,000 de servidores.**
+**Completamente en español y preferida por más de 2,000,000 de servidores.**
 
 Nekotina es una poderosa bot que quiere incentivar la actividad en tu servidor.
 Invitame a tu servidor y ten la mejor calidad de música, economía y todo lo que puedas imaginar completamente en español. ¿Qué esperas para comenzar nuestra aventura?
