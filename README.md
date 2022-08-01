@@ -19,7 +19,7 @@ Invitame a tu servidor y ten la mejor calidad de música, economía y todo lo qu
 > 7,000 gifs de anime que potencian el roleplay.
 
 ## Soporte
-**Nuestro servidor oficial de soporte: [LINK](https://discordapp.com/invite/nekotina)**
+**Nuestro servidor oficial de soporte: [LINK](https://discord.com/invite/nekotina)**
 
 También recibimos sugerencias en nuestro servidor de soporte. :3
 
