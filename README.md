@@ -21,8 +21,6 @@ Invitame a tu servidor y ten la mejor calidad de música, economía y todo lo qu
 ## Soporte
 **Nuestro servidor oficial de soporte: [LINK](https://discord.com/invite/nekotina)**
 
-También recibimos sugerencias en nuestro servidor de soporte. :3
-
 > Creada con ❤️ por Gwee & Kwee 
 
 ![Nekotina](https://cdn.discordapp.com/attachments/644484615167541261/880624757261881414/nekotina_dango.gif)
